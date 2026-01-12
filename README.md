@@ -1,1 +1,1 @@
-## A revier note for your ic fabrication class
+## A review note for your ic fabrication class
